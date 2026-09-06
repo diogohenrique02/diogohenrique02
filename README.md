@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @diogohenrique02
+- 👋 Hi, I’m diogo (akira)
 - 👀 I’m interested in:do robotics and advanced technology or be a violinist or pianist
 - 🌱 I’m currently learning: robotics or music field
 - 💞️ I’m looking to collaborate on: in the areas of robotics and technology
